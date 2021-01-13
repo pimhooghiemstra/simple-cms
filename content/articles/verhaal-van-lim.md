@@ -1,9 +1,11 @@
 ---
-title: Verhaal van Lim
-description: 'Een eerste start om een verhaaltje te schrijven.'
-language: nl
----
+title: Clifftale - Hoofdstuk 1
+description: Bjorn is thuis en wordt overvallen door Kjeld die met een bijzonder verhaal
+  bij hem langs komt. Kjeld is ten einde raad en vraag Bjorn om hulp. Bjorn twijfelt
+  wat hij moet doen.
+language: Nederlands
 
+---
 ## Hoofdstuk 1
 
 Er wordt aangebeld. Het is al laat, wie kan dat zijn? Ik ga heus niet opendoen. Wat een gedoe. De bel gaat opnieuw. Zuchtend staat Bjorn op en loopt naar het raam. Het rolgordijn is al omlaag want hij kijkt graag naar zijn favoriete serie zonder al het invallende licht van buiten. Irritant genoeg valt er altijd net een kiertje licht binnen. Zo net nog zat hij zich te verbijten omdat het kiertje licht precies over zijn tv scherm viel. Toch maar eens kijken of het rolgordijn niet net een tikkie naar links verschoven kan worden. Dan is het perfect. Nu het kiertje er nog is, kan hij precies naar buiten kijken.
