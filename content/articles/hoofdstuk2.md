@@ -12,7 +12,7 @@ Het is koud op de fiets. Haar handen raken langzaam gevoelloos, ook al draagt ze
 
 Met al die gedachten in haar hoofd rijdt Eline door de stad. Het korte piepje van haar mobiel bereikt na enige tijd haar oren. Het geluid was bijna overstemt door de tram die al rammelend in zijn rails langs kwam rijden en werd ook deels gedempt door de dikke wollen muts op haar hoofd. Maar ze hoort hem. En dus wil ze weten wie haar appt. Zou het Kjeld zijn, met een toespeling op de gezellige avond die ze eerder die week hebben gehad. En of ze dat niet gauw weer eens over zouden moeten doen? Wat haar betreft prima. Het is een beetje een vreemde figuur maar ze vindt hem leuk. En knap. Hij maakt haar aan het lachen ook en humor is belangrijk, zoals haar moeder altijd zei.
 
-Langs de stoeprand stopt ze en balancerend met een been op de grond en de ander nog op de trappers vist ze met een blote hand haar telefoon tevoorschijn. Als het scherm oplicht ziet ze al de eerste regel: 'Diepedal, boom x, haast' Verrast ontgrendeld ze haar mobiel. Dan ziet ze het hele bericht. Daar staat niet veel meer.
+Langs de stoeprand stopt ze en balancerend met een been op de grond en de ander nog op de trappers vist ze met een blote hand haar telefoon tevoorschijn. Als het scherm oplicht ziet ze al de eerste regel: 'Diepedal, boom x, haast' Verrast ontgrendeld ze haar mobiel. Dan ziet ze het hele bericht. Dat is niet veel langer.
 
 > _Diepedal, boom x, haast_
 >
@@ -23,3 +23,13 @@ Het appje is afkomstig van Kjeld, maar ze kan er zo een-twee-drie niet zo veel v
 Snel typt ze een bericht terug: 'kom eraan'. Dan gooit ze haar mobiel in haar tas, en zet koers naar Diepedal. 
 
 Het is nogal een stuk rijden, maar omdat ze nu tempo maakt begint ze het langzaam wel warm te krijgen. Het bericht van Kjeld blijft maar door haar hoofd spelen en herhaalt zich langzaam tot een mantra. Diepedal, boom x, snel snel snel. Ze gaat wat harder fietsen en in de verte ziet ze de poort van het park al opdoemen.
+
+In het park is het rustig. De meeste mensen zijn op hun werk of op weg ernaartoe. Ze kijkt weer om zich heen of ze Kjeld al ziet, maar ze ziet enkel een moeder met kinderwagen. Er zit een felgekleurde ballon aan een touwtje vastgeknoopt aan de kinderwagen. Helium denkt ze verstrooid.
+
+In het midden van het park is een groot grasveld en een vijver. Aan de rand van de vijver zet ze haar fiets tegen de grote boom. De onderkant van de boom is gebarsten en bovenop loopt hij verder uit naar links en rechts. Als je van een afstandje goed kijkt, kun je er een X in zien. Kjeld heeft haar hier een poos geleden mee naartoe genomen. Het was zogenaamd hun eerste date en na het eten zei hij dat hij haar iets wilde laten zien in het park. Een bijzondere boom. In eerste instantie vond ze het maar een raar voorstel, maar omdat ze wel geïntrigeerd was door Kjeld stemde ze toch in. In het park aangekomen leidde hij haar direct naar de vijver en de boom. Van dichtbij had ze het niet gezien, maar Kjeld had haar steeds een stukje naar achter laten lopen tot ze opeens heel duidelijk de X vorm van de boom zag. Precies op dat moment zakte de zon tussen het bovenste deel van de X door en werd het heel even wat donkerder. Hij had haar hand gepakt en in haar oor gefluisterd. 'Zo direct komt de zon nog heel even tevoorschijn, en dan zien we hem morgen pas weer'. En inderdaad, vlak daarna kwam de zon aan de onderkant nog even tevoorschijn om vervolgens onder te gaan. Het was een van de mooiste zonsondergangen die ze ooit had gezien en geroerd had ze zich omgedraaid en had zich door Kjeld laten kussen.
+
+Sindsdien was het hun geheimpje en de rest van de zomer waren ze vaak rond zonsondergang naar 'hun boom' gegaan om te kijken. 
+
+Er is nog steeds niemand in de buurt en Eline kijkt nog eens op haar mobiel. Ze had Kjeld hier nu toch wel al verwacht, maar van hem ziet ze geen spoor. Ook in de app blijft het stil sinds zijn laatste bericht. Haar bericht is ook niet eens gelezen. 
+
+Ze maakt zich nu grote zorgen en terwijl de minuten wegtikken blijft het in het park heel erg stil. Er komen nu en dan wel mensen langs, met een hond, op een skateboard, nog meer moeders met kinderen en kinderwagens, maar Kjeld zit er niet tussen. Na een half uur besluit ze een rondje te gaan lopen door het park. Misschien is hij er dan zo toch ineens en dan krijgt ze het meteen ook weer een beetje warm. Ze zet haar fiets op slot en loopt langs de vijver.
