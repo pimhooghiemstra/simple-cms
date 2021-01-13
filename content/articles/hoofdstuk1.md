@@ -4,7 +4,10 @@ description: Bjorn is thuis en wordt overvallen door Kjeld die met een bijzonder
   bij hem langs komt. Kjeld is ten einde raad en vraag Bjorn om hulp. Bjorn twijfelt
   wat hij moet doen.
 language: Nederlands
+
 ---
+**Een paar weken terug**
+
 Er wordt aangebeld. Het is al laat, wie kan dat zijn? Ik ga heus niet opendoen. Wat een gedoe. De bel gaat opnieuw. Zuchtend staat Bjorn op en loopt naar het raam. Het rolgordijn is al omlaag want hij kijkt graag naar zijn favoriete serie zonder al het invallende licht van buiten. Irritant genoeg valt er altijd net een kiertje licht binnen. Zo net nog zat hij zich te verbijten omdat het kiertje licht precies over zijn tv scherm viel. Toch maar eens kijken of het rolgordijn niet net een tikkie naar links verschoven kan worden. Dan is het perfect. Nu het kiertje er nog is, kan hij precies naar buiten kijken.
 
 Kjeld staat beneden. Hij ziet er niet zo goed uit. Dat kun je zelfs vanaf hier zien. Grauw gezicht, ingevallen wangen. Heeft zeker weer niet gegeten en waarschijnlijk nog minder geslapen. Wat gaat het worden? Echt zin in bezoek van Kjeld heeft hij niet, maar het is blijkbaar dringend want de bel gaat opnieuw. Het doordringende geluid van de bel klinkt opnieuw. Het gaat gepaard met een doffe roffel op de deur. Een gedempt gevloek volgt. 'Bjorn schiet eens op man, ik sta hier al een uur jongen.' De confrontatie gaat hij liever uit de weg. Hij heeft geen zin in Kjeld over de vloer. Wil de eigenlijk eens een avondje op tijd naar bed. De andere kant van het verhaal is dat je Kjeld daar niet kan laten staan. Dan wordt het niks. Of eigenlijk alles. Drama, geschreeuw, de buren zien het. Of komen zelfs naar buiten om poolshoogte te nemen.
