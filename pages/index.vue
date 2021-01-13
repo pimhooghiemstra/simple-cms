@@ -1,7 +1,7 @@
 <template>
   <v-row justify="center" align="center">
     <v-col cols="12" sm="8" md="6">
-      <v-card v-for="article of articles" style="margin-bottom: 30px;">
+      <v-card v-for="(article, index) of articles" :key="index" style="margin-bottom: 30px;">
         <v-card-title class="headline">{{article.title}}</v-card-title>
         <v-card-text>{{article.description}}</v-card-text>
         <v-card-actions>
