@@ -15,6 +15,8 @@
     <v-app-bar :clipped-left="clipped" fixed app>
       <v-app-bar-nav-icon @click.stop="drawer = !drawer" />
       <v-toolbar-title v-text="title" />
+      <v-spacer />
+      <v-btn color="primary" nuxt :to="`/`">Home</v-btn>
     </v-app-bar>
     <v-main>
       <v-container>
@@ -48,7 +50,7 @@ export default {
       miniVariant: false,
       right: true,
       rightDrawer: false,
-      title: 'Simple CMS with nuxt-content and Forestry.io',
+      title: 'Clifftale',
     }
   },
   computed: {
