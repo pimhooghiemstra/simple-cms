@@ -1,6 +1,7 @@
 ---
 title: Hoofdstuk 2
-description: Introductie Eline
+description: Eline ontvangt een app van Kjeld en haast zich naar park Diepedal. Daar
+  vindt ze aan de rand van de vijver, op de grond bij boom X een USB stick.
 language: Nederlands
 
 ---
@@ -38,4 +39,8 @@ Op het water ligt een dun vliesje ijs. In het midden, rondom de sproeier van de 
 
 Aan de andere kant van de vijver staat een klein gebouwtje. Eline loopt er naar toe. Het is een rechthoekig bouwsel, opgetrokken uit oranje bakstenen. Voegen zijn er nauwelijks nog. Die zijn er in de loop van de jaren uitgevallen dan wel uitgevroren. Er is een smerig raampje waar je net doorheen kunt kijken. Eline gaat op haar tenen staan en kijkt naar binnen. Een smerig matras, lege zakken brood, een beschimmelde sinaasappel. Niet echt een fijne plek om je nachten door te brengen, denkt ze. Maar toch is er iemand die dat doet blijkbaar, gezien de spullen.
 
-Ze loopt verder door het park. In dit gedeelte staan voornamelijk naaldbomen. Ze staan dicht op elkaar en maken het donkerder dan het is. Het geeft een naargeestig gevoel en Eline is er niet meer zo zeker van dat het een goed idee was om een rondje door het park te lopen. In het begin heeft ze het een keer verteld aan Kjeld, dat ze het in het donker niet zo prettig vindt. Hij luisterde oprecht geïnteresseerd naar haar en vertelde toen doodleuk dat ze dan maar dicht bij hem moest blijven. Hij gaf namelijk licht. Gek natuurlijk, maar toch had ze het samen met hem nooit erg gevonden om door dit stuk van het park te lopen. Spannend, dat wel, maar niet eng of akelig. Niet zoals nu.
+Ze loopt verder door het park. In dit gedeelte staan voornamelijk naaldbomen. Ze staan dicht op elkaar en maken het donkerder dan het is. Het geeft een naargeestig gevoel en Eline is er niet meer zo zeker van dat het een goed idee was om een rondje door het park te lopen. In het begin heeft ze het een keer verteld aan Kjeld, dat ze het in het donker niet zo prettig vindt. Hij luisterde oprecht geïnteresseerd naar haar en vertelde toen doodleuk dat ze dan maar dicht bij hem moest blijven. Hij gaf namelijk licht. Gek natuurlijk, maar toch had ze het samen met hem nooit erg gevonden om door dit stuk van het park te lopen. Spannend, dat wel, maar niet eng of akelig. Niet zoals nu. Gelukkig is ze bijna rond. In de verte kan ze het grote, stalen hek van het park alweer zien. Met een zucht van opluchting loopt ze het laatste stukje naar haar fiets. Ze kijkt nog eens om zich heen. Het is nog steeds erg rustig. 
+
+Ze pakt haar sleutel en steekt hem in het slot. Haar oog valt op de opening in de boom. Uit de bodem, half uit het zicht, steekt een stukje rood plastic af tegen de verder dorre bodem. Het slot van haar fiets opent met een harde tik als ze ongemerkt de sleutel heeft omgedraaid. Ze schrikt er zo van dat ze even recht op gaat staan om tot rust te komen. Opnieuw kijkt ze naar het rode stukje plastic. Zou het zo'n smerig zakje voor hondendrollen zijn? Ze ziet de mensen er altijd mee lopen. 's Ochtends, 's middags, 's avonds, er is altijd wel iemand de hond aan het uitlaten en tja, die beesten poepen nu eenmaal en dat moet je opruimen als baasje. Vroeger hoefde dat weliswaar niet, maar het is fijn dat dat nu wel zo is. Maar nee, het plastic lijkt dikker en harder te zijn. Met haar handschoen aan (je weet maar nooit en als het toch zo'n ander zakje is dan zit er in elk geval nog wat tussen haar vinger en het zakje) voelt ze aan het plastic. Het is inderdaad stevig en lijkt wel half begraven.
+
+Ze zet haar fiets opzij en gaat op haar knieën zitten. Binnen no time heeft ze het los. Het is    een klein bundeltje van stevig rood plastic, dichtgetapet met plakband. Ze maakt het open en er valt een kleine, rode USB stick in haar hand.
