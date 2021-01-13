@@ -33,3 +33,5 @@ fields:
   type: boolean
   label: Published
   description: If the article is published or not.
+pages:
+- content/articles/hoofdstuk-5.md
