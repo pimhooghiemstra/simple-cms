@@ -1,16 +1,15 @@
 ---
 title: Hoofdstuk 3
-description: Ontmoeting tussen Eline en Bjorn. onder valse voorwendselen gaat ze op
-  privé skiles. ‘s Avonds in de après-ski bar ontmoeten ze elkaar voor het eerst.
-  Hij is erg onder de indruk van haar (heeft haar ook niet eerder ontmoet en weet
-  derhalve niet dat ze bij Kjeld hoort). De volgende ochtend blijkt zij het te zijn
-  die privéles heeft van hem.
+description: Ontmoeting tussen Eline en Bjorn. ‘s Avonds in de après-ski bar ontmoeten
+  ze elkaar voor het eerst. Hij heeft haar ook niet eerder ontmoet en weet derhalve
+  niet dat ze bij Kjeld hoort. Maar komt daar snel achter, maar wil er opnieuw niks
+  mee te maken hebben als ook zij hem om hulp vraagt
 language: Nederlands
 
 ---
 **Heden**
 
-De sfeer is uitgelaten. De muziek erg hard en het gemorste bier kleeft aan Bjorn's schoenen. Het is zijn ding niet die apres-ski. Te veel luidruchtige, oppervlakkige lui naar zijn smaak en ze staan ook te dicht op elkaar. Maar hij moet nog even overleggen over zijn schema voor de komende dagen met John. Gelukkig duurt dat nooit lang. Maar eerst tussen die beschonken figuren door. Halverwege de feesttent, dicht bij de bar, valt zijn oog op haar. Een aantrekkelijke jonge vrouw die alleen aan de bar zit. Dat zal wel niet lang duren. Aandacht genoeg hier voor zulke dames denkt hij, en loopt door naar achteren.
+De sfeer is uitgelaten. De muziek erg hard en het gemorste bier kleeft aan Bjorn's schoenen. Het is zijn ding niet die après-ski. Te veel luidruchtige, oppervlakkige lui naar zijn smaak en ze staan ook te dicht op elkaar. Maar hij moet nog even overleggen over zijn schema voor de komende dagen met John. Gelukkig duurt dat nooit lang. Maar eerst tussen die beschonken figuren door. Halverwege de feesttent, dicht bij de bar, valt zijn oog op haar. Een aantrekkelijke jonge vrouw die alleen aan de bar zit. Dat zal wel niet lang duren. Aandacht genoeg hier voor zulke dames denkt hij, en loopt door naar achteren.
 
 John is er al en ze bespreken de verschillende lessen. Morgen heeft hij eerst mevrouw Arends die 3 dagen privéles heeft gereserveerd, gevolgd door een vrij blok. Dan kan hij mooi wat corvee doen. ‘s Middags is er een nieuwe les ingepland, een groepje van zes kinderen. Dat zijn de leukste lessen: die kleintjes kun je tenminste nog echt leren skiën. Tenminste, als ze er een beetje zin in hebben. Maar hij heeft zo z’n trucjes om ze erbij te houden dus dat gaat goed komen.
 
