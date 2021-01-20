@@ -1,9 +1,10 @@
 ---
 title: Hoofdstuk 3
 description: Ontmoeting tussen Eline en Bjorn. ‘s Avonds in de après-ski bar ontmoeten
-  ze elkaar voor het eerst. Hij heeft haar ook niet eerder ontmoet en weet derhalve
-  niet dat ze bij Kjeld hoort. Maar komt daar snel achter, maar wil er opnieuw niks
-  mee te maken hebben als ook zij hem om hulp vraagt
+  ze elkaar voor het eerst. Hij heeft haar niet eerder ontmoet en weet niet dat ze
+  bij Kjeld hoort. Maar daar komt hij snel achter, maar wil er opnieuw niks mee te
+  maken hebben als ook zij hem om hulp vraagt. Eline gaat zelf aan de slag met de
+  USB stick.
 language: Nederlands
 
 ---
