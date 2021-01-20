@@ -1,10 +1,8 @@
 ---
 title: Hoofdstuk 4
 description: Eline gooit het over een andere boeg als ze Bjorn 's ochtends bij het
-  ontbijt aanspreekt. Ze weet hem ervan te overtuigen om haar 's middags mee te nemen
-  buiten de piste om te skiën. Maar het weer slaat om en ze komen terecht in een lawine.
-  Ze komen eruit, maar het pad terug naar het dal is afgesneden en ze kunnen alleen
-  nog naar de berghut.
+  ontbijt aanspreekt. Ze weet hem ervan te overtuigen om 's middags samen te gaan
+  skiën.
 language: Nederlands
 
 ---
