@@ -1,7 +1,7 @@
 ---
 language: Nederlands
 title: Hoofdstuk 5
-description: 
+description: Eline bestudeert de USB stick en moet contact opnemen met Bjorn, maar hoe gaat ze hem vinden?
 published: true
 ---
 **Een paar dagen geleden**
