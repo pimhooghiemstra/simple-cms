@@ -36,3 +36,4 @@ fields:
   description: If the article is published or not.
 pages:
 - content/articles/Personages/personages.md
+- content/articles/Timeline/grote-lijn-van-het-verhaal.md
