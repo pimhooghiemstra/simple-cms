@@ -22,15 +22,13 @@ Als Julia hem in het oog krijgt tapt ze snel een biertje voor hem en brengt die 
 
 'Hé Bjorn, lang niet gezien. Gaat het weer beginnen?'
 
-'Ja, ach, je weet hoe dat gaat', zegt Bjorn en schud zijn hoofd. 'Zodra het koud weer wordt is mijn plaats in dit dorp op de piste'.
+'Ja, ach, je weet hoe dat gaat', zegt Bjorn en schudt zijn hoofd. 'Zodra het koud weer wordt is mijn plaats in dit dorp op de piste'.
 
-Julia kijkt hem nog even aan en vraagt
-
-'scheelt er wat?'
+Julia kijkt hem nog even aan. 'Scheelt er wat?'
 
 Bjorn geeft niet direct antwoord en dat is zijn redding. Aan de andere kant van de bar wordt al weer luid gejoeld om aandacht en dat is het teken voor Julia om zich die kant op te spoeden. Ze staat vanavond alleen achter de bar en het is druk. Een echt gesprek zat er dus ook niet in. Gelukkig maar, want Bjorn heeft er nu ook even geen zin in. Het enige waar hij behoefte aan heeft is een warme douche en dan zijn bed.
 
-'Ben jij Bjorn?', hoort hij dan achter zich. Zacht uitgesproken en met een oplopende toon, alsof de vraagsteller het ook niet kan voorstellen dat hij het is? Hij draait zich langzaam om en voor hem staat de jonge vrouw die hij eerder aan de bar zag zitten.
+'Ben jij Bjorn?', hoort hij dan achter zich. Zacht gesproken en met een aarzeling in de stem, alsof de vraagsteller het niet kan geloven dat hij het echt is. Hij draait zich langzaam om en voor hem staat de jonge vrouw die hij eerder aan de bar zag zitten.
 
 Van dichtbij ziet ze er nog beter uit dan daarvoor, toen hij slechts een korte blik op haar geworpen had. Wat zou ze van hem willen? Er is maar een manier om daar achter te komen denkt hij bij zichzelf. Ineens is de vermoeidheid van hem afgevallen en hij tovert een glimlach op zijn gezicht die meestal bedoeld is voor zijn pupillen van de skiles.
 
@@ -38,7 +36,7 @@ Van dichtbij ziet ze er nog beter uit dan daarvoor, toen hij slechts een korte b
 
 Ze schudt haar hoofd. Nu pas ziet hij dat ze staat te trillen op haar benen.
 
-'Kunnen we misschien ergens even rustig praten?' vraagt ze zachtjes.
+'Kunnen we misschien even ergens rustig praten?' vraagt ze zachtjes.
 
 Bjorn staat op en wenkt haar mee naar achteren, in het kantoortje waar hij daarnet nog met John de planning door had genomen.
 
@@ -46,9 +44,9 @@ Bjorn staat op en wenkt haar mee naar achteren, in het kantoortje waar hij daarn
 
 'Ok, je zult me wel raar vinden, maar ik ben al een paar dagen naar je op zoek en nu kom je hier vanavond ineens binnenlopen en heb ik je gevonden. Kjeld zei dat jij me verder kon helpen'.
 
-Het komt er in snel gemompel uit maar Bjorn is er behoorlijk van in de war. Kennelijk zoekt ze hem en kent ze zijn broer. Hij vervloekt Kjeld met zijn problemen die ook al door zijn hoofd spookten de laatste dagen.
+Het komt er in rap gemompel uit maar Bjorn is er behoorlijk van in de war. Kennelijk zoekt ze hem en kent ze zijn broer. Hij vervloekt Kjeld met zijn problemen die ook al door zijn hoofd spookten de laatste dagen.
 
-'Waar ken je Kjeld van?', vraagt hij haar.
+'Waar ken je Kjeld van?', vraagt hij.
 
 'Hij is mijn vriend, we zijn een paar maanden samen. Ik heet Eline.' Ze valt weer stil en het lijkt niet alsof ze meer gaat zeggen. Blijkbaar moest ze even de woorden zoeken of moed verzamelen, want nu gaat ze verder.
 
@@ -68,6 +66,6 @@ Zo hadden ze het toch niet bedacht, Kjeld en zij. Ze hadden plannen gemaakt. Weg
 
 Het enige aanknopingspunt dat ze op dit moment had was de gevonden USB stick en het contact met Bjorn. Hoewel het er niet op leek dat die ook maar een vinger zou gaan uitsteken om haar te helpen.
 
-Ze pakte haar laptop en stak de USB stick aan de zijkant in het apparaat. Vervolgens zat ze tot diep in de nacht te zoeken wat de informatie kon betekenen. Het was een grote puzzel, maar langzaamaan kwam er enige duidelijkheid in de chaos. Ergens in haar onderbewustzijn begon zich een plan te ontvouwen. Een plan waarmee ze verder kon. Misschien kon ze Kjeld er niet mee terugvinden, maar ze moest iets proberen. 
+Ze pakte haar laptop en stak de USB stick aan de zijkant in het apparaat. Vervolgens zat ze tot diep in de nacht te zoeken wat de informatie kon betekenen. Het was een grote puzzel, maar langzaamaan kwam er enige duidelijkheid in de chaos. Ergens in haar onderbewustzijn begon zich een plan te ontvouwen. Een plan waarmee ze verder kon. Misschien kon ze Kjeld er niet mee terugvinden, maar ze moest iets proberen.
 
-Ze besloot dat ze morgenochtend als eerste zou proberen om weer in contact met Bjorn te komen. Hij zou haar toch echt moeten kunnen helpen. Waarom had Kjeld daar anders zo op aangedrongen? 
+Ze besloot dat ze morgenochtend als eerste zou proberen om weer in contact met Bjorn te komen. Hij zou haar toch echt moeten kunnen helpen. Waarom had Kjeld daar anders zo op aangedrongen?
