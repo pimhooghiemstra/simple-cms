@@ -22,7 +22,17 @@ Samen met nog een groep andere skiërs stappen ze in de lift. Het is rumoerig en
 
 Bjorn stelt voor om op de rode piste te beginnen en laat haar voorgaan. Het uur van de waarheid, denkt Eline en ze glijdt naar beneden. Zwierend en gemakkelijk skiet ze de piste af en binnen korte tijd is ze alweer beneden. Ze kijkt achterom en ziet Bjorn aankomen. In een wolk van sneeuw komt hij naast haar tot stilstand.
 
-'Dat ging hartstikke goed, wat dacht je van de zwarte piste?' roept hij enthousiast
+'Dat ging hartstikke goed, wat dacht je van de zwarte piste?' roept hij enthousiast. En hij maakt aanstalten richting de lift. 
+
+'Ja hoor, ik kom,' zegt Eline.
+
+De zwarte piste is steiler, ijziger en een stuk moeilijker, maar Eline komt er heelhuids vanaf. Bjorn is onder de indruk en steekt dat niet onder stoelen of banken.
+
+'Wow, je kan echt goed skiën'.
+
+'Jij kan het anders ook goed,' zegt ze, 'stukken beter dan Kjeld in elk geval,' floept ze er daarna uit. Bjorns gezicht betrekt en ze denkt meteen dat had ik niet moeten zeggen. Maar hij schudt zijn hoofd en de glimlach keert terug. 
+
+'Zullen we nog een keer? Ik stel voor om een stukje off piste te gaan, dan kan ik je de mooiste stukken laten zien.'
 
 Ze nemen de skilift naar boven en gaan eerst op de rode piste en daarna op de zwarte. Het loopt op rolletjes en Bjorn stelt voor om off piste te gaan.
 
