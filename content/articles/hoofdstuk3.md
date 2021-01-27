@@ -18,12 +18,9 @@ Zoals verwacht zijn ze zo klaar met het schema. De dagen na morgen herhaalt het 
 
 Julia staat achter de bar de glazen te spoelen en te drogen. Achter elkaar gaan de glazen 3 maal heen en weer door de spoelbak, omgekeerd op het waterspuitje en in het afdruiprek. Het lijkt een geoliede machine. Maar dat moet ook wel, want daar is alweer de volgende vrolijke Frans die een meter bier komt bestellen. De glazen staan in gelid naast de tap. Een voor een verdwijnen ze eronder en het goudgele gerstenat kolkt in het glas. Na 13 glazen klapt de tap weer dicht, wordt er 30 euro afgetikt en is er weer een tevreden klant.
 
-Als Julia hem in het oog krijgt tapt ze snel een biertje voor hem en brengt die naar zijn plek aan de bar.
-
-'Hé Bjorn, lang niet gezien. Gaat het weer beginnen?'
-
-'Ja, ach, je weet hoe dat gaat', zegt Bjorn en schudt zijn hoofd. 'Zodra het koud weer wordt is mijn plaats in dit dorp op de piste'.
-
+Als Julia hem in het oog krijgt tapt ze snel een biertje voor hem en brengt die naar zijn plek aan de bar.  
+'Hé Bjorn, lang niet gezien. Gaat het weer beginnen?'  
+'Ja, ach, je weet hoe dat gaat', zegt Bjorn en schudt zijn hoofd. 'Zodra het koud weer wordt is mijn plaats in dit dorp op de piste'.  
 Julia kijkt hem nog even aan. 'Scheelt er wat?'
 
 Bjorn geeft niet direct antwoord en dat is zijn redding. Aan de andere kant van de bar wordt al weer luid gejoeld om aandacht en dat is het teken voor Julia om zich die kant op te spoeden. Ze staat vanavond alleen achter de bar en het is druk. Een echt gesprek zat er dus ook niet in. Gelukkig maar, want Bjorn heeft er nu ook even geen zin in. Het enige waar hij behoefte aan heeft is een warme douche en dan zijn bed.
@@ -32,28 +29,17 @@ Bjorn geeft niet direct antwoord en dat is zijn redding. Aan de andere kant van 
 
 Van dichtbij ziet ze er nog beter uit dan daarvoor, toen hij slechts een korte blik op haar geworpen had. Wat zou ze van hem willen? Er is maar een manier om daar achter te komen denkt hij bij zichzelf. Ineens is de vermoeidheid van hem afgevallen en hij tovert een glimlach op zijn gezicht die meestal bedoeld is voor zijn pupillen van de skiles.
 
-'Ja, dat klopt, ik ben Bjorn. Ga zitten, wil je wat drinken?'
-
-Ze schudt haar hoofd. Nu pas ziet hij dat ze staat te trillen op haar benen.
-
-'Kunnen we misschien even ergens rustig praten?' vraagt ze zachtjes.
-
-Bjorn staat op en wenkt haar mee naar achteren, in het kantoortje waar hij daarnet nog met John de planning door had genomen.
-
-'Ga zitten', zegt hij nogmaals, terwijl hij het goede voorbeeld geeft en aan de rommelige tafel plaatsneemt. Ze gaat ook zitten en zucht eens diep.
-
-'Ok, je zult me wel raar vinden, maar ik ben al een paar dagen naar je op zoek en nu kom je hier vanavond ineens binnenlopen en heb ik je gevonden. Kjeld zei dat jij me verder kon helpen'.
-
-Het komt er in rap gemompel uit maar Bjorn is er behoorlijk van in de war. Kennelijk zoekt ze hem en kent ze zijn broer. Hij vervloekt Kjeld met zijn problemen die ook al door zijn hoofd spookten de laatste dagen.
-
-'Waar ken je Kjeld van?', vraagt hij.
-
-'Hij is mijn vriend, we zijn een paar maanden samen. Ik heet Eline.' Ze valt weer stil en het lijkt niet alsof ze meer gaat zeggen. Blijkbaar moest ze even de woorden zoeken of moed verzamelen, want nu gaat ze verder.
-
-'Ik heb een USB stick gevonden en daar stond op dat jij me verder zou kunnen helpen. Oh god, zit Kjeld in de problemen?'
-
-Het wordt Bjorn een beetje te veel. Eerst komt Kjeld uit het niks bij hem op bezoek en nu is het de beurt aan zijn vriendin. En hij heeft haar niet eens genoemd bij hem thuis eerder die week. Bruusk staat hij op en gromt.
-
+'Ja, dat klopt, ik ben Bjorn. Ga zitten, wil je wat drinken?  
+Ze schudt haar hoofd. Nu pas ziet hij dat ze staat te trillen op haar benen.  
+'Kunnen we misschien even ergens rustig praten?' vraagt ze zachtjes.  
+Bjorn staat op en wenkt haar mee naar achteren, in het kantoortje waar hij daarnet nog met John de planning door had genomen.  
+'Ga zitten', zegt hij nogmaals, terwijl hij het goede voorbeeld geeft en aan de rommelige tafel plaatsneemt. Ze gaat ook zitten en zucht eens diep.  
+'Ok, je zult me wel raar vinden, maar ik ben al een paar dagen naar je op zoek en nu kom je hier vanavond ineens binnenlopen en heb ik je gevonden. Kjeld zei dat jij me verder kon helpen'.  
+Het komt er in rap gemompel uit maar Bjorn is er behoorlijk van in de war. Kennelijk zoekt ze hem en kent ze zijn broer. Hij vervloekt Kjeld met zijn problemen die ook al door zijn hoofd spookten de laatste dagen.  
+'Waar ken je Kjeld van?', vraagt hij.  
+'Hij is mijn vriend, we zijn een paar maanden samen. Ik heet Eline.' Ze valt weer stil en het lijkt niet alsof ze meer gaat zeggen. Blijkbaar moest ze even de woorden zoeken of moed verzamelen, want nu gaat ze verder.  
+'Ik heb een USB stick gevonden en daar stond op dat jij me verder zou kunnen helpen. Oh god, zit Kjeld in de problemen?'  
+Het wordt Bjorn een beetje te veel. Eerst komt Kjeld uit het niks bij hem op bezoek en nu is het de beurt aan zijn vriendin. En hij heeft haar niet eens genoemd bij hem thuis eerder die week. Bruusk staat hij op en gromt.  
 'Kjeld zit altijd in de problemen en het is altijd dezelfde die die problemen voor hem kan oplossen, ik. Maar ik ben er klaar mee. Ik heb het hem van de week ook al gezegd. Ik doe het niet. Niet meer.'
 
 En daarmee is voor Bjorn de kous af. Hij loopt het kantoortje uit, door de kroeg, naar buiten.
